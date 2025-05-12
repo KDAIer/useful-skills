@@ -1,1 +1,1 @@
-# Some useful skiils
+# Some useful skills
